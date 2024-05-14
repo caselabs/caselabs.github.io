@@ -1,1 +1,1 @@
-[taylor@caselabs.info](mailto:taylor@caselabs.info)
+[contact@caselabs.info](mailto:contact@caselabs.info)
